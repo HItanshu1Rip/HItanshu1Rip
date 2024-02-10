@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Just Learning from here
 - 🌱 I’m currently learning ... Diploma Eng. Computer Eng.
 - 💞️ I’m looking to collaborate on ... Nothing for Now
-- 📫 How to reach me ... Fro Nowhere
+- 📫 How to reach me ... From Nowhere
 - 😄 Pronouns: ... Hi + tan + shu
 - ⚡ Fun fact: ... Is there any Fun Fact Why only I don't know 😅
 
